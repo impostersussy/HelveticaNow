@@ -1,1 +1,1 @@
-# Helvetica Neue font
+# Helvetica Now font
